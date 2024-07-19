@@ -1,6 +1,7 @@
 # Microsoft-Power-BI-PL-300
 🎓 Microsoft Power BI PL-300 Practice Tests Exams Questions Answers 🚀
 
+![image](https://github.com/user-attachments/assets/75638308-8d17-4d5a-a908-fc37a0a468c3)
 
 
 # 🎓 Microsoft Power BI PL-300 Practice Tests Exams Questions Answers 🚀
